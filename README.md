@@ -125,4 +125,4 @@ For privacy questions, requests or concerns relating to DamageProof, contact:
 **DamageProof**  
 Website: **damageproof.co.uk**
 
-A dedicated support/privacy email address will be added here when available.
+Email: damageproof.review@gmail.com
